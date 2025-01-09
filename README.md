@@ -1,0 +1,1 @@
+# k-resel-iyilik-uygulmas-
